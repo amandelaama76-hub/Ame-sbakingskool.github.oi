@@ -1,2 +1,2 @@
-# Ame-sbakingskool.github.oi
+amesbakingschool 
 Growing passionate bakers 
